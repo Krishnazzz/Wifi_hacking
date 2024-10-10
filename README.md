@@ -252,19 +252,19 @@ aircrack-ng Meow.txt.cap -w /usr/share/rockyou.txt
 
 🧠 I'm currently learning more C.E.H
 
-👯‍♀️ to be honest i take help of @nlkguy credit to him as well.
+👯‍♀️ to be honest i take help of @Esther7171 credit to him as well.
 
 🤔 i though to combine all so it easy for begginer bez at start i didn't find a proper tutorial.
 
 💬 Ask me about...  "Nothing"
 
-📫 How to reach me... "@deathesther" instagram only please
+📫 How to reach me... "@psychix_krishnaaa" instagram only please
 
 
 ⚡️ nothing much to write
 
 ## For queerys u can ask me on my instagram
-@deathesther    
+@psychix_krishnaaa    
 my username
  ## Badges
 
